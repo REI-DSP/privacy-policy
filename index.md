@@ -131,4 +131,5 @@ Any updated version will be published at the same address with a revised **Last 
 For questions about this Privacy Policy or REI-DSP.SA's privacy practices, contact:
 
 **REI-DSP**  
+**Email:** whitenoise4698@gmail.com  
 **Email:** antonetalon@gmail.com
